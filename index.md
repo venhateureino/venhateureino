@@ -1,7 +1,6 @@
 ## Compartilhe a verdade para o mundo
 
 ### Uma forma de utilizar a web para espalhar a palavra de Deus
-
 Esse espaço tem como objetivo juntar formas de se utilizar da internet para contribuir com a divulgação da palavra de Deus.
 
 ### Dicas inicias
