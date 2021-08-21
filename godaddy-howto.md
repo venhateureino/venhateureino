@@ -1,2 +1,2 @@
 # Godaddy
-[![Godaddy](/src/img/thumb-godaddy.png)](https://www.youtube.com/watch?v=TVg81eZrGss&)
+[![Godaddy](/src/img/thumb-godaddy.png)](https://www.youtube.com/watch?v=JT5EocLpgW8)
